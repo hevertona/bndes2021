@@ -12,6 +12,10 @@ http://www.heverton.com.br/heverton/index.php/analise-o-que-a-falta-de-criativid
 
 --------------------------------------
 
+Link do video no Youtube do Pitch: 
+
+--------------------------------------
+
 
 --- solução de análise digital ---
 
